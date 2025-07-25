@@ -22,3 +22,14 @@ PC - Windows
 
 [itch.io Sayfası
 ](https://abrans-game.itch.io/eternal-rebirth-the-last-hope)
+
+
+
+<img width="347" height="194" alt="cuB_Ha" src="https://github.com/user-attachments/assets/48d0cc86-0495-4f70-9839-37660f858151" />
+
+<img width="347" height="194" alt="Pa2WHz" src="https://github.com/user-attachments/assets/9d31e95f-3a1c-4477-a0c0-66e365f2698c" />
+
+<img width="347" height="80" alt="apa9z2" src="https://github.com/user-attachments/assets/b207e24f-2400-4bf2-8330-bffd35b1fcf2" />
+
+<img width="794" height="718" alt="zreuPF" src="https://github.com/user-attachments/assets/6faf8f35-17df-4405-9312-9815bd7a0323" />
+
